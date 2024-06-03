@@ -1,0 +1,1 @@
+# trigo-no-game
